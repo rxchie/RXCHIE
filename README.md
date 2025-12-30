@@ -1,3 +1,2 @@
-![Image](https://github.com/user-attachments/assets/07886071-7214-438a-979a-f7b97828f231)
-
-i find it funny if some1 copied my skin. But srsly be creative :/🤦‍♀️
+![Image](https://github.com/user-attachments/assets/60ccab80-df7a-4ea1-9697-a617f6759500)
+(i might try to animate this if im being diligent🧍‍♀️)
