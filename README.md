@@ -8,4 +8,4 @@
 \
 ✧ If you wanna copy my skin w/o my permission, idgaf lol—as long as I'm the original elelelelle \
 \
-✧ If my friends or I have caused any annoyance or inconvenience to you or your friends without my knowledge, I sincerely apologize \
+
