@@ -7,4 +7,5 @@
 ✧ I'm mostly afk sooo feel free to whisp or c+h with me ! I'm oky with it ♪~ ᕕ(ᐛ)ᕗ \
 \
 ✧ If you wanna copy my skin w/o my permission, idgaf lol—as long as I'm the original elelelelle \
-
+\
+<p align="center">#jollynation ❤️
