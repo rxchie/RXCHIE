@@ -1,6 +1,8 @@
 <p align="center">ⁿᵒ ʳᵉⁿᵗʳʸ ⁱᵍ ᴵ'ᵐ ᵗᵒᵒ ˡᵃᶻʸ ᵗᵒ ᵉᵛᵉⁿ ᵐᵃᵏᵉ ᵒⁿᵉ</p> 
 <p align="center">ˏ⸉ˋ‿̩͙‿̩̩̥͙̽‿̩͙‿̩̥̩‿̩̩̥͙̽‿̩͙ˊ⸊ˎ</p>
 
+<p align="center"><img width="800" height="450" alt="Image" src="https://github.com/user-attachments/assets/f69f917e-b2a6-49a1-b903-218eb65f8b52" /></p>
+
 <p align="center">archie or arche ಠ_ಠ</p>
 <p align="center">ˏ⸉ˋ‿̩͙‿̩̩̥͙̽‿̩͙‿̩̥̩‿̩̩̥͙̽‿̩͙ˊ⸊ˎ</p>
 
